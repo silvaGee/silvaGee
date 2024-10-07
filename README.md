@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @silvaGee
 - 👀 I’m interested in reading, gardening, animals, games, and languages
 - 🌱 I’m currently learning how to work with AI tools
-- 💞️ I’m looking to collaborate on creating cool apps, bots, and websites!
+- 💞️ I’m looking to collaborate on creating apps, bots, and websites!
